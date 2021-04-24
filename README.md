@@ -1,1 +1,1 @@
-# gregcoin
+# The one and only Greg
